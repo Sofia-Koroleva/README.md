@@ -1,12 +1,23 @@
 Sofia Koroleva
+
 Address: Hanoi, Vietnam
- E-mail: rerere2004@bk.ru 
+
+E-mail: rerere2004@bk.ru 
+
 Phone: +7 960 519 97 90
-LinkedIn: https://www.linkedin.com/in/sofia-koroleva-7a089210a/ Residence permit with ability to work in Russia and USA
- Nationality: Russian
+
+LinkedIn: https://www.linkedin.com/in/sofia-koroleva-7a089210a/ 
+
+Residence permit with ability to work in Russia, SSN in USA
+
+Nationality: Russian
+
 Availability: ready to start within a 2 weeks notice
+
 Education
 2005 - 2009 – French-Russian Institute of business administration, Management, Bachelor degree
+
+
 Work experience
 01.2018 – 04.2022, RPE RADICO (https://radicotech.com/), Main office
 Senior Tender Specialist
